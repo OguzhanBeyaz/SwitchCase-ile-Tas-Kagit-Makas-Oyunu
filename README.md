@@ -1,1 +1,1 @@
-# SwitchCase-Tas-Kag-t-Makas-Oyunu
+# SwitchCase-Tas-Kagit-Makas-Oyunu
